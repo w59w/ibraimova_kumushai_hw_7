@@ -1,0 +1,1 @@
+# ibraimova_kumushai_hw_7
